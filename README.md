@@ -1,2 +1,2 @@
-# Diseno-Visual-Digital
+# Diseño Visual Digital
 Diseño Visual Digital
